@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Esnutrisari04
 - 👀 I’m interested in data analysis and programming
 - 🌱 I’m currently learning fundamentals data analysis with python
-- 💞️ I’m looking to collaborate on ...
+-  💞️ I’m looking to collaborate on "!@#$.. error 404"
 - 📫 How to reach me just email me on esnutrisari04@gmail.com or this github
 - 😄 Pronouns: "The Best Never Rest"
 - ⚡ Fun fact: I am a power ranger.. hahahaha
